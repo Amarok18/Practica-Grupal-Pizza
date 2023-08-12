@@ -1,3 +1,3 @@
-Probando
-Segunda prueba
-Mas instrucciones
+Preparar mentalmente
+Hacer la masa
+Amasar
